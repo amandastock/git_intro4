@@ -1,2 +1,1 @@
 Amanda Stock
-7
